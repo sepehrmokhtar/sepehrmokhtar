@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @sepehrmokhtar
-- 👀 I’m interested in almost nothing.
 - 🌱 Health informatics student at DIT.
 - 💞️ Former Marketing Specialist
 - 📫 How to reach me: sepehrmokhtar@icloud.com
